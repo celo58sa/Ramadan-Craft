@@ -1,0 +1,1 @@
+Bu mod oyununuza yeni madenler , yeni yemekler , sesler , guiler , özellikler ve yapılar ekliyebilir oldukça müslimanlar için bir mod :d Modun orjinal hali 1.16.5 ken 1.12.2 için geliştirmeyi düşündüm ve modu oluşturdum.İyi oyunlar dostum!
